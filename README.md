@@ -1,0 +1,1 @@
+# TechSmith-Capture-2.1.2.605-Full-Version
